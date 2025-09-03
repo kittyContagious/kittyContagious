@@ -1,6 +1,6 @@
 A kitty treads along an empty trail.
 It waits and walks across a tree, so frail.
-Without an engine, without a sail,
+Without an engine, without a sail...
 bravery guides it; its daring tail. 
 
 
